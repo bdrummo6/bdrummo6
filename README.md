@@ -9,4 +9,4 @@ Here are a few things about me:
 - 💬 Ask me about History, College Football, and anything you might think is interesting.
 - 📫 How to reach me: bradley.drummondsi@gmail.com
 - ⚡ Fun fact: Amazon.com was originally called a cadabra.
--->
+
